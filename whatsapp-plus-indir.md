@@ -1,6 +1,6 @@
 ---
 layout: page
-title: WhatsApp Plus Apk Download (2018 Latest Version)
+title:  واتساب بلس
 permalink: /whatsapp-plus-download
 ---
 
