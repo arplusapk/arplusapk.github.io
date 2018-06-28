@@ -16,9 +16,9 @@ permalink: /whatsapp-plus-download
 </script>
 <center>
 <a href="https://plusapkz.com/"><img src="https://plusapkz.com/wplus.png" alt="whatsapp plus" title="gbwhatsapp" /></a><br />
-Name: WhatsApp Plus APK Download<br />
-Version: v6.40 (Latest)<br />
-Update: 09.04.2018<br />
+Name: WhatsApp Plus APK - واتساب بلس<br />
+Version: v7.11 (Latest)<br />
+Update: 28.06.2018<br />
 Size: 34,8 MB<br />
      <center>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
@@ -31,8 +31,8 @@ Size: 34,8 MB<br />
 (adsbygoogle = window.adsbygoogle || []).push({});
 </script>
 </center>
-<a rel="dofollow" href="https://plusmodapks.xyz/gb-whatsapp-download" target="_blank">.APK Download (35MB)</a><br>
-<a rel="nofollow" href="https://plusapkz.com/WhatsappPlusV610.zip" target="_blank">.ZIP Download (21MB)</a><br>
+<a rel="dofollow" href="https://plusmodapks.xyz/gb-whatsapp-download" target="_blank">(35MB) .APK تنزيل</a><br>
+<a rel="nofollow" href="https://ar.plusapkz.com/WhatsappPlusV610.zip" target="_blank">(21MB) .ZIP تنزيل</a><br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- 336 -->
 <ins class="adsbygoogle"
@@ -44,14 +44,28 @@ Size: 34,8 MB<br />
 </script>
 </center>
 
-<h2>Should You Download WhatsApp Plus and How Can You Do That?</h2>
-Yes, downloading WhatsApp Plus is a very good idea, and you can indeed enjoy a great experience
-thanks to it. All you have to do is to give it a shot, and you will be quite impressed with the results and
-the experience as a whole. By downloading WhatsApp Plus right now, you will have no problem enjoying
-all the aforementioned features, a lack of ads and a much more interesting way to use this tool.<br><br>
-Moreover, WhatsApp Plus is designed with convenience in mind, and it has no viruses. It’s a 100% legit
-tool that you can start using right now and which can offer you hours upon hours of great experiences
-and fun games that you will love quite a bit.<br><br>
-If you always enjoyed and wanted to try out WhatsApp with more features, all you have to do is to
-download the APK from our website right now. We are here to make your WhatsApp experience a
-better one, just download this great app now, and you will certainly enjoy using it!
+<h2>ما الذي يجعل واتساب + مختلفًا عن واتساب ؟</h2>
+المواضيع البصرية المضافة
+الميزة الأبرز لـ واتساب + (ولماذا تم إنشاؤه في المقام الأول) ، هي القدرة على تغيير مظهر واتساب تمامًا ،
+والذي يمكن إجراؤه باختيار أنماط جديدة أو موضوعات مرئية.
+أضاف رموز مشاعر جديدة
+إذا كان واتساب لا يمتلك ما يكفي بالفعل ، فإن ميزة أخرى لـ واتساب + هي إضافة رموز جديدة ، بما في ذلك
+الوجوه الضاحكة من Google Hangouts.
+إخفاء اتصالك / الحالة الأخيرة
+لسنوات ، كانت إحدى الميزات المميزة في واتساب + تخفي آخر وقت اتصال ، والذي عادةً ما يخون وجودك في
+واتساب.
+تعديل خيارات مشاركة الملفات
+يتيح لك خيار آخر بواتساب + تغيير حد حجم الملفات المرسلة من 2 إلى 50 ميغابايت. هناك أيضًا خيارات للحفاظ
+على حجم ونوعية الصور ومقاطع الفيديو.
+تعديل المظهر وإعدادات كل شيء
+
+بالإضافة إلى قائمة الأسطح ، يحتوي واتساب + على ما لا يقل عن 6 قوائم لتعديل المظهر والإعدادات:
+رأس وألوان وحجم صور الدردشة
+رأس وحجم صورة جهات الاتصال
+ظهور وحجم الإخطارات المنبثقة
+تعطيل الوظائف (الملاحظات الصوتية ، الرسوم المتحركة)
+حجم وألوان الحاجيات
+لون رمز قاذفة
+
+إذا كنت تريد تخصيص مظهر واتساب وتريد المزيد من التحكم في أشياء مثل الإشعارات وإرسال الصور ، فإن
+واتساب + هو البديل المثالي لك.
