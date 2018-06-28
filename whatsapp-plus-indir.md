@@ -16,8 +16,7 @@ permalink: /whatsapp-plus-download
 </script>
 <center>
 <a href="https://plusapkz.com/"><img src="https://plusapkz.com/wplus.png" alt="whatsapp plus" title="gbwhatsapp" /></a><br />
-Name: WhatsApp Plus APK - واتساب بلس<br />
-Version: v7.11 (Latest)<br />
+WhatsApp Plus APK - واتساب بلس<br />
 Update: 28.06.2018<br />
 Size: 34,8 MB<br />
      <center>
