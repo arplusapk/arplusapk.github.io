@@ -1,6 +1,6 @@
 ---
 layout: page
-title: WhatsApp Plus Apk Download for Android (2018 Latest Version)
+title: WhatsApp Plus Apk Download (2018 Latest Version)
 permalink: /whatsapp-plus-download
 ---
 
