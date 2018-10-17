@@ -17,7 +17,7 @@ permalink: /whatsapp-plus-download
 <center>
 <a href="https://plusapkz.com/"><img src="https://plusapkz.com/wplus.png" alt="whatsapp plus" title="gbwhatsapp" /></a><br />
 WhatsApp Plus APK - واتساب بلس<br />
-Update: 28.06.2018<br />
+Update: 17.10.2018<br />
 Size: 34,8 MB<br />
      <center>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
@@ -31,7 +31,6 @@ Size: 34,8 MB<br />
 </script>
 </center>
 <a rel="dofollow" href="https://plusmodapks.xyz/gb-whatsapp-download" target="_blank">(35MB) .APK تنزيل</a><br>
-<a rel="nofollow" href="https://ar.plusapkz.com/WhatsappPlusV610.zip" target="_blank">(21MB) .ZIP تنزيل</a><br>
 <script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
 <!-- 336 -->
 <ins class="adsbygoogle"
